@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **anything, i'm free 👀**
 
-- 📫 How to reach me **musharrofshishir@gmail.com**
+- 📫 How to reach me **email:** **musharrofshishir@gmail.com**, **discord:** **musharrofshishir#7710**
 
 - ⚡ Fun fact **I love food.😋**
 
